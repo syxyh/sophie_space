@@ -1,2 +1,2 @@
 # sophie_space
-back to code
+I am working in retail industry and now I focus on retail data.
